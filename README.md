@@ -1,0 +1,1 @@
+# Algorithm-for-scalping-strategy
